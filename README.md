@@ -1,4 +1,4 @@
--👀 Estou interessado em explorar novas tecnologias e viajar pelo mundo digital.
+ 👀 Estou interessado em explorar novas tecnologias e viajar pelo mundo digital.
 🌱 Atualmente estou aprendendo sobre inteligência artificial e como ela pode transformar o futuro.
 💞️ Estou procurando colaborar em projetos inovadores que buscam fazer a diferença no mundo.
 📫 Você pode me alcançar enviando uma mensagem para o espaço cibernético! 🚀
